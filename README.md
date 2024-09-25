@@ -1,1 +1,1 @@
-# [MeuCurriculo](https://leoteisil.github.io/MeuCurriculo/)
+# https://leoteisil.github.io/MeuCurriculo01/
